@@ -1,2 +1,0 @@
-# bagasid
-Untuk bersenang senang
